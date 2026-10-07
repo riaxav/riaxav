@@ -1,16 +1,20 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**riaxav/riaxav** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![17316254603113223149016975915015](https://github.com/user-attachments/assets/e8385acf-a7a5-49d6-aceb-fe5d0a5e11c8)
 
-Here are some ideas to get you started:
+#. ┈ 𝙍𝙄𝙉𝘼 / 𝙍𝙄 . 𝙎𝙃𝙀 / 𝙃𝙀𝙍 ┈.<br/>
+༒︎<br/> 
+afk ( away from keyboard ) ;<br/>
+w2i ( whisper to interact ) ;<br/>
+dnc ( do not cover ) ;<br/>
+rpdni ( roleplay do not interact ) ;<br/>
+dnc ( do not copy ).<br/>
+»»————> ☨ <————««<br/>
+!!. please do not copy my skins exactly.<br/>
+you can take the idea of color combinations, but please don't copy them completely.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+safe russian #1 // safe server 
+
+𝙩𝙝𝙖𝙣𝙠𝙨 𝙛𝙤𝙧 𝙛𝙤𝙡𝙡𝙤𝙬𝙞𝙣𝙜!! <br/>
+
+![17316255690712818802524157009217](https://github.com/user-attachments/assets/b34ec122-281f-412e-b02d-59b691215887)
