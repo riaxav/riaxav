@@ -1,6 +1,6 @@
 <div align="center">
 
-#. ┈ 𝙍𝙄𝙉𝘼 / 𝙍𝙄 . 𝙎𝙃𝙀 / 𝙃𝙀𝙍 ┈.<br/>
+$\color{red}{\text{#. ┈ 𝙍𝙄𝙉𝘼 / 𝙍𝙄 . 𝙎𝙃𝙀 / 𝙃𝙀𝙍 ┈.}}$ <br/>
 ༒︎<br/> 
 afk ( away from keyboard ) ;<br/>
 w2i ( whisper to interact ) ;<br/>
