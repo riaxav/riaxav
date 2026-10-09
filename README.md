@@ -12,5 +12,6 @@ $\color{#bf3d2d}{\text{»————————«}}$
 
  <img width="306" height="71" alt="kotlc aesthetic (4)" src="https://github.com/user-attachments/assets/000f50d1-3456-4a6c-a297-fc0306a509d0" />
  
+$\color{#bf3d2d}{\text{ DNI : homophobes, former friends and weirdos .}}$  
 $\color{#e3c85d}{\text{ do not copy my skins, please .! }}$  
 
